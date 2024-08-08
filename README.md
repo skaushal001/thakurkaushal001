@@ -1,4 +1,4 @@
-![github-snake](https://github.com/user-attachments/assets/91a798e1-5e05-485e-84a4-f7929ed0ec51)Hi Iam Sreeraj. 
+![github-snake](https://github.com/user-attachments/assets/91a798e1-5e05-485e-84a4-f7929ed0ec51)Hi I am Kaushal Singh . 
 
  SKILLS/LANGUAGES KNOWN:-
 
