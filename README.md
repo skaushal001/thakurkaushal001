@@ -14,7 +14,7 @@
 Operating Systems Known:
 
 
-![icons8-android-48](https://github.com/user-attachments/assets/cf58b5c2-30b8-4eac-8463-a525f7442258)
+
 ![icons8-windows-48](https://github.com/user-attachments/assets/2489cbb2-158b-4b56-8534-60782acb1b79)
 
 
